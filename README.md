@@ -1,0 +1,1 @@
+# LP_9RUBY_Q2Q2_Magday_Constace
